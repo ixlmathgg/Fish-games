@@ -10,6 +10,6 @@ SubwaySurfers: https://ixlmathgg.github.io/cat
 
 Super Mario 64: https://ixlmathgg.github.io/dog
 
-
+FruitNinja: https://ixlmathgg.github.io/doggy
 
 ONLY FOR KAMERYN
